@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nop1ace
-- 👀 I’m interested in TV shows online
+- 👀 I’m interested in TV/Movie online
 - 🌱 I’m currently learning CS
 - 💞️ I’m looking to collaborate on something
 - 📫 How to reach me nop1ace@protonmail.com
